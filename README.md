@@ -1,0 +1,1 @@
+# Machine-Learning-For-Soil-And-Crop-Management-2025-Assignments-And-Lecture-Material
